@@ -1,5 +1,8 @@
 ## 🎨  digital Artist who with phone lagging as hell (sometimes or almost everyday 💔) 🖌️ 
 
+<img width="500" height="500" alt="1000094714" src="https://github.com/user-attachments/assets/fe9eb301-f402-43d0-a963-6525aee3d99c" />
+
+
 * don't take my stuff or copy without my permission!. *
 
 "I rarely online.. And sometimes I will leave you or offline without permission sorry, mates, but you can call me with any pronouns!"
